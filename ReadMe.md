@@ -2,3 +2,6 @@
 <br>
 AISGK 数据多而且还算良心，不充钱可以预览几个字，可以大概猜一下是不是正确数据，是不是自己想要的数据<br>
 社工庫机器人: https://t.me/aishegongkubot?start=AISGK_KJR72OJ3
+
+<br>data007 可以白用几次，之后就需要用钱了
+https://t.me/DATA_007bot?start=lsuTEsTpls
